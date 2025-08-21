@@ -30,3 +30,8 @@ Dedicar 5h semanais a estudos.
 Atualizar o GitHub com resumos e projetos.
 
 Revisar este planejamento a cada 6 meses.
+📬 Contato
+•	Email: valdineiacorediro246@gmail.com
+•	LinkedIn: www.linkedin.com/in/valdineia-cordeiro-49a5012a7
+•	GitHub: https://github.com/valdineiacordeiro246-png/portfolio-pessoal-Valdineia
+
